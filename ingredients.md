@@ -4,7 +4,7 @@ Dry Ingredients:
 1+1/2 tbsp : cocoa powder,      
 1/8 tsp : baking powder     
 small pinch : baking soda,      
-handful : chocolate chunks,     
+handful : chocolate chunks   
 
 Wet Ingredients:
 2 tbsp : melted butter,     
